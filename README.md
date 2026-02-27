@@ -7,7 +7,7 @@
     <tr>
       <td>
         <br>
-       　　　𓉸　 　　 $${\color{#f26c86}kiki}$$  　🦴　　　 $${\color{#eab1a1}( ´ㅅ` Ｕ)ﾉｼ}$$  　⠀ $${\color{#f26c86}hyrshe}$$  ﹕<br>
+       　　　⁰ᨵᩥ⁰　 　　 $${\color{#f26c86}kiki}$$  　🦴　　　 $${\color{#eab1a1}( ´ㅅ` Ｕ)ﾉｼ}$$  　⠀ $${\color{#f26c86}hyrshe}$$  ﹕<br>
          <br>
       </td>
     </tr>
