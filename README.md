@@ -1,4 +1,4 @@
-<img src="https://files.catbox.moe/9eu69l.png" width="340" align="left" alt="yubiyubi!">
+<img src="https://files.catbox.moe/r9mgyp.png" width="340" align="left" alt="yubiyubi!">
 
  
 <br>
@@ -13,7 +13,7 @@
     </tr>
   </table>
 
-  <img src="https://files.catbox.moe/r9mgyp.png" width="392" alt="yubiyubi!">
+  <img src="https://files.catbox.moe/53h6o4.png" width="392" alt="yubiyubi!">
 
  <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=eab1a1&label=✙" alt="profile view counter"> 　　 [<img src="https://files.catbox.moe/3aqyo7.png" width="90">](https://rentry.co/handinmine) 　 [<img src="https://files.catbox.moe/afon4j.png" width="170">](https://en.pronouns.page/@handinmine)
 
