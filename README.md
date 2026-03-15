@@ -13,7 +13,7 @@
     </tr>
   </table>
 
-  <img src="https://files.catbox.moe/7sczn7.png" width="392" alt="yubiyubi!">
+  <img src="https://files.catbox.moe/h6ssat.png" width="392" alt="kurukuru!">
 
  <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=ffb5c3&label=✙" alt="profile view counter"> 　 [<img src="https://files.catbox.moe/ukz6ss.png" width="150">](https://huskyki.straw.page/) 　 [<img src="https://files.catbox.moe/4n0c39.png" width="150">](https://en.pronouns.page/@huskyki)
 
