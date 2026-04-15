@@ -20,4 +20,4 @@
  
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=e7b7b7&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) <img src="https://files.catbox.moe/6yp9f0.png" width="85" alt="kurukuru!">
 
-　　 [<img src="https://files.catbox.moe/k7cyyg.png" width="120" alt="atabook!">](https://huskyki.atabook.org/) 　　　　 [<img src="https://files.catbox.moe/qe1rx7.png" width="120" alt="atabook!">](https://guns.lol/huskyki) 　　　　 <img src="https://files.catbox.moe/i9rlxt.png" width="430" alt="kurukuru!">
+　　 [<img src="https://files.catbox.moe/k7cyyg.png" width="120" alt="atabook!">](https://huskyki.atabook.org/) 　　　　　 [<img src="https://files.catbox.moe/qe1rx7.png" width="120" alt="atabook!">](https://guns.lol/huskyki) 　　　　　 <img src="https://files.catbox.moe/i9rlxt.png" width="420" alt="kurukuru!">
