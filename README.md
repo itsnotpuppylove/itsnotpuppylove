@@ -21,4 +21,4 @@
 
 　　 [<img src="https://files.catbox.moe/k7cyyg.png" width="120" alt="atabook!">](https://itsnotpuppylove.atabook.org/) 　　　　 [<img src="https://files.catbox.moe/qe1rx7.png" width="120" alt="guns!">](https://guns.lol/itsnotpuppylove) 　　　　　 <img src="https://files.catbox.moe/eoxlej.png" width="420" alt="euini!">
 
-<img src="https://files.catbox.moe/tw5fkd.png" width="390" align="left" alt="euini!">　<img src="https://files.catbox.moe/i9rlxt.png" width="420" alt="euini!">
+<img src="https://files.catbox.moe/tw5fkd.png" width="390" align="left" alt="euini!">　 <img src="https://files.catbox.moe/i9rlxt.png" width="420" alt="euini!">
