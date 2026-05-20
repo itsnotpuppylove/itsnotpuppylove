@@ -1,5 +1,5 @@
 <p align="center">
-<img src="https://files.catbox.moe/px9sze.png" width="300" align="left" alt="off to the races by lana del rey">
+<img src="https://files.catbox.moe/px9sze.png" width="350" align="left" alt="off to the races by lana del rey">
 <p>
 
 <img src="https://files.catbox.moe/0zjob7.png" width="400" alt="push me down by lana del rey">
@@ -10,9 +10,9 @@
     <tr>
       <td>
         <br>
-          $${\color{#fff7e6}　𓈒　◜﹒　for　anyone}$$ <br>
-          $${\color{#e3a6a1}who　has　ever　made　a　bad　decision}$$ <br>
-          $${\color{#d97186}　because　of　a　broken　heart﹒　◞}$$ <br>
+          $${\color{#fff7e6}　𓈒　　◜　﹒　　　for　anyone}$$ <br>
+          $${\color{#e3a6a1}　who　has　ever　made　a　bad　decision}$$ <br>
+          $${\color{#d97186}　　　because　of　a　broken　heart　﹒　◞}$$ <br>
          <br>
       </td>
     </tr>
