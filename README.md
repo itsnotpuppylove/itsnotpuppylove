@@ -30,10 +30,24 @@ $${\color{#E2D7CD}　　as \space you \space do \space now, \space my \space man
   </table>
 </p>
 
-<br>
-<img src="https://files.catbox.moe/68nu2i.png" width="285" align="left" alt="off to the races by lana del rey">
-<br>
+<img src="https://files.catbox.moe/68nu2i.png" width="290" align="left" alt="off to the races by lana del rey">
+<br><br>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=E3CAC1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile) 
+
+<p align="center">
+  <table>
+    <tr>
+      <td>
+        <details> 
+          <summary> $${\color{#C49DAA}　𐔌　ׅ͡ 𓈒𓏲ׁ \space 　𓈒 ݁　friends! \space  \space ᣟ 　◟ \space ˖}$$ </summary><br>
+          my family!! <a href="https://github.com/MrPapbee">papa papbee</a>, <a href="https://github.com/06chromis">big bro chromis</a>, <a href="https://github.com/hyacinethia">big sis genesis</a>, <a href="https://github.com/SUBMRGD">big bro2 kasper</a>, <a href="https://github.com/deceitfuldevil">big sis2 mai</a>, and <a href="https://github.com/angxlsfluff">big sis3 koji!</a>, <br>
+          and my awesome packmates =33 <a href="https://github.com/pawfectangel">pawfectangel</a>, <a href="https://github.com/achillesofphthia">achillesofphthia</a>, <a href="https://github.com/Teratophilia">Teratophilia</a>, <a href="https://github.com/spotpup">spotpup</a>, <a href="https://github.com/HOUNDISHXX">HOUNDISHXX</a>, and <a href="https://github.com/mothbear">mothbear</a>!! <br>
+          note that i only add people who have me in their github or are dear to me ^_^ <br>
+        </details>
+      </td>
+    </tr>
+  </table>
+</p>
 
 <img src="https://komarev.com/ghpvc/?username=luuvbite&style=flat-square&color=E2C1C4&label=﹒_　_𑁥౿_　_𐂯_　_。_ꕀ" alt="profile view counter"> 　　　　𑣲 　　 $${\color{#D0ADB4}little}$$ $${\color{#C49DAA}guys!}$$
