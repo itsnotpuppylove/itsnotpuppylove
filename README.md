@@ -28,4 +28,4 @@ $${\color{#fff7e6}as \space you \space do \space now, \space my \space man!"ã€€à
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rcxzij7oqnpmtxkcufjzuubiui&cover_image=false&theme=novatorem&show_offline=false&background_color=000000&interchange=true&profanity=false&bar_color=e3a6a1&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
-<img src="https://komarev.com/ghpvc/?username=luuvbite&style=flat-square&color=e3a6a1&label=little_guys" alt="profile view counter">
+<img src="https://komarev.com/ghpvc/?username=luuvbite&style=flat-square&color=e3a6a1&label=little_guys" alt="profile view counter"> this is a wip btw i have no clue why my text isnt aligning right
