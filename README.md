@@ -4,7 +4,7 @@
     <tr>
       <td>
         <details> 
-          <summary> <img src="https://files.catbox.moe/0pl8uh.gif" width="20" alt="wan! wan!"> $${\color{#776f78}　 \space ⬫　 \space .　links \space !! 　　ꪆ୧ ·　 ׅ  　 ·}$$  </summary><br>
+          <summary> <img src="https://files.catbox.moe/0pl8uh.gif" width="20" alt="wan! wan!"> $${\color{#776f78} \space ⬫　 \space .　links \space !! 　　ꪆ୧ ·　 ׅ  　 ·}$$  </summary><br>
           <a href="https://rentry.co/angxlpup">shared rentry with awesome sis @angxlsfluff!!</a> <img src="https://files.catbox.moe/0kvv93.gif" width="20" alt="wan! wan!"> <br>
           <br>
           <a href="https://guns.lol/pupsome">guns</a> <br>
@@ -40,7 +40,7 @@
     <tr>
       <td>
         <details> 
-          <summary> <img src="https://files.catbox.moe/mlaqyh.gif" width="20" alt="wan! wan!"> $${\color{#cf8b9a}　꒰ᩧׁׅ　　𓏼 \space 　ᰍ　my \space friends! \space ゛ \space 𓈒　e}$$ </summary><br>
+          <summary> <img src="https://files.catbox.moe/mlaqyh.gif" width="20" alt="wan! wan!"> $${\color{#cf8b9a}꒰ᩧׁׅ　　𓏼 \space 　ᰍ　my \space friends! \space ゛ \space 𓈒　e}$$ </summary><br>
           my awzzum littermates! =3 <img src="https://files.catbox.moe/mdvyp8.gif" width="20" alt="wan! wan!"> <a href="https://github.com/MrPapbee">papa papbee</a>, <a href="https://github.com/06chromis">big bro chromis</a>, <a href="https://github.com/hyacinethia">big sis genesis</a>, <a href="https://github.com/SUBMRGD">big bro2 kasper</a>, <a href="https://github.com/deceitfuldevil">big sis2 mai</a>, and <a href="https://github.com/angxlsfluff">big sis3 koji!</a>, <br>
           and the rest of mi pack !! <img src="https://files.catbox.moe/loop7v.gif" width="20" alt="wan! wan!"> <a href="https://github.com/pawfectangel">pawfectangel</a>, <a href="https://github.com/achillesofphthia">achillesofphthia</a>, <a href="https://github.com/Teratophilia">Teratophilia</a>, <a href="https://github.com/spotpup">spotpup</a>, <a href="https://github.com/HOUNDISHXX">HOUNDISHXX</a>, <a href="https://github.com/mothbear">mothbear</a>, and <a href="https://github.com/militarymutt">militarymutt</a>! <br>
           note that i only add people who have me in their github or are dear to me ^_^ <br>
