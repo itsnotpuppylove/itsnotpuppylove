@@ -36,3 +36,11 @@
 <img src="https://komarev.com/ghpvc/?username=luuvbite&style=for-the-badge&color=9e7b87&label=_　_𑁥౿_　_𐂯_　" alt="profile view counter"> 　　𑣲 　　 $${\color{#776f78}customrrs}$$　<img src="https://files.catbox.moe/toa6px.gif" width="20" alt="wan! wan!">
 
 <img src="https://files.catbox.moe/lki9b3.gif" width="295" align="left" alt="money power glory by lana del rey">
+
+<br>
+
+<img src="https://files.catbox.moe/054ryz.png" width="295" align="left" alt="NOO MATTER GAY STRAIGHT OR BIIII LESBIAN TRANSGENDER RIGHTSSS">
+
+# happy pride month !! <333 
+<img src="https://files.catbox.moe/6uk3mf.png" width="295"> <img src="https://files.catbox.moe/hb2u31.png" width="295">
+
